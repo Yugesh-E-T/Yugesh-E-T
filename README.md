@@ -14,7 +14,7 @@ My main focus is product design, UI/UX, wireframing, prototyping, and design sys
 Fun Facts:
 - I’m cute, funny, and slightly unstable.
 - I don’t like tea or coffee.
-- Hobbies: fitness, design, travel
+- Hobbies: fitness, design and travel
 
 
 
